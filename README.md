@@ -25,4 +25,4 @@ Diploma in IT (NIIT, Lagos)
 **Looking for:** frontend work on dashboards, developer tools, or anything with a
 large table in it. Remote, WAT (UTC+1), full UK/EU overlap.
 
-📫 rolandhunjunude60@gmail.com
+📫 hunjunuderoland20@gmail.com
